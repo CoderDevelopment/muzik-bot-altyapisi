@@ -1,2 +1,2 @@
-# muzik-bot-altyapisi
-By ♤CodeR♤ Development Team™ ©
+# TÜM HAKLARI SAKLIDIR...©
+♤CodeR♤ Development Team™ Tarafından Kodlanmıştır...
